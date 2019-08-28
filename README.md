@@ -1,3 +1,3 @@
 # aula04
 
-As branquelas, Carga explosiva e Velozes e furiosos.
+As branquelas, Duro de matar, Velozes e furiosos e Carga explosiva.
